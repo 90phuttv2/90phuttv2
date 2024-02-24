@@ -14,8 +14,6 @@ Bước 1: Người xem sẽ tiến hành tróc nã cập trực tiếp vào tra
 Bước 2: đến trang chính thì bạn sẽ tậu trận đấu bóng đá mà mình muốn theo dõi. lúc vào trang web bạn sẽ thấy đầy đủ các cuộc đấu diễn ra trong ngày hoặc gần được phát sóng ngay trang chủ. Bạn chỉ cần tìm cuộc đấu mà mình muốn xem và ấn vào ấy là được.
 Bước 3: Người xem ấn chọn xem ngay để thưởng thức cuộc đấu mà bạn muốn theo dõi.
 
-https://www.survivethrive.org/
-
 https://www.pinterest.com/90phuttv2/
 
 https://vimeo.com/90phuttv2
